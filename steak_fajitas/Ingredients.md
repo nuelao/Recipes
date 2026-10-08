@@ -1,3 +1,5 @@
+Each serving provides 434 kcal, 30g protein, 46g carbohydrates (of which 16g sugars), 12g fat (of which 4g saturates), 13g fibre and 0.7g salt.
+
 300g/10½oz lean beef steak, such as sirloin or rump, visible fat trimmed and cut into thin strips
 1½ tbsp extra virgin or sunflower oil
 2 yellow peppers, deseeded and thinly sliced
