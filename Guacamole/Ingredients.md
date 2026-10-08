@@ -1,5 +1,3 @@
-This file will contain the list of ingredients
-
 Core Ingredients
 Lime juice: Adds brightness and prevents the avocado from browning 
 Tomatoes: Diced for freshness and texture 
